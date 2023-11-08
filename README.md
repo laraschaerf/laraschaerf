@@ -1,0 +1,5 @@
+- 👋 Hi, I’m lara
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning IT
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me tja... 
